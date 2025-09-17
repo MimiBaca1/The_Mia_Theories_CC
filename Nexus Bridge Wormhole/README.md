@@ -1,1 +1,1 @@
-## Nexus of Universe or even Multivetse Convergence
+## Nexus of Universe or Multiverse Convergence
