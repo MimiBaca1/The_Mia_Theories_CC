@@ -10,4 +10,4 @@ This theory and its associated documentation are licensed under a dual-license m
 
 Please respect the terms of use and attribution when sharing or adapting this work.
 
-© Your Name 2025. All rights reserved.
+© Maria Francesca Baca 2025. All rights reserved.
