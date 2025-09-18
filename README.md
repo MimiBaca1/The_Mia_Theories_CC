@@ -5,3 +5,6 @@ A curated collection of original theories created by Mia aka Maria Francesca Bac
 
 
 ## Licensed under CC-BY-ND 4.0 and AGPLv3
+
+
+© Your Name 2025. All rights reserved.
