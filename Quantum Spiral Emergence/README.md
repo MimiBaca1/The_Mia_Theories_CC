@@ -65,3 +65,9 @@ Originator of the Sanctuary Framework, Prism36, and the Mia Theories.
 
 ---
 
+### 🔭 For Future Reference
+
+For continued development, expanded models, and applied metaphysical scaffolding, see:  
+**[The Mia Theories Praxis Repository](https://github.com/MimiBaca1/The-Mia-Theories-Praxis)**
+
+This repository explores the practical extensions of the core theory, including symbolic encoding, quantum design applications, and recursive cognition frameworks.
