@@ -1,1 +1,1 @@
-THE BUD Model: A Visual Conceptual Representation of the multiverses' expand and collapse states
+THE Bubble Dandelion Model: A Visual Conceptual Representation of the multiverses' expand and collapse states
